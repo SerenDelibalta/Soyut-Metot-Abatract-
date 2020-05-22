@@ -1,0 +1,1 @@
+# Soyut-Metot-Abatract-
